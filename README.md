@@ -1,2 +1,1 @@
-idk man
-go check out my website or something
+Go check out my website since you're here
